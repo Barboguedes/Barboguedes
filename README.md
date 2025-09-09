@@ -12,4 +12,4 @@
 ---
 
 ✉️ Como me encontrar:  
-LinkedIn: https://www.linkedin.com)](https://www.linkedin.com/in/samuel-guedes-356a14350/ | Email: guedessamuel693@gmail.com
+LinkedIn: https://www.linkedin.com/in/samuel-guedes-356a14350/ | Email: guedessamuel693@gmail.com
