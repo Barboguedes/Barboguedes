@@ -1,7 +1,7 @@
 # 👋 Olá, eu sou o Samuel
 
 👨‍💻 Estudante de ADS | Foco em Desenvolvimento Web | Aprendendo Java
-💻 Future Web Developer | Explorando Inteligência Artificial
+💻 Future Web Developer | Future rogramador back-end | Explorando Inteligência Artificial 
 
 ---
 
