@@ -8,7 +8,7 @@
 ## 🚀 Tecnologias que estudo 
 - **Back-end:** Java  
 - **Outros:** Excel
-- 
+
 ---
 
 ✉️ Como me encontrar:  
